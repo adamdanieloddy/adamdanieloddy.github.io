@@ -1,2 +1,2 @@
-# adamdanieloddy.github.io
-Professional Portfolio.
+# Get to know Adam Daniel!
+
